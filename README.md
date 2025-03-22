@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on open-source projects and innovative platforms.
 - 📫 How to reach me:  
   - 📧 Email: williamkariuki001@gmail.com  
-  - 💼 LinkedIn:    
+  - 💼 LinkedIn: www.linkedin.com/in/william-kariuki-48613229b   
 - 😄 Pronouns: He/Him  
 - ⚡ Fun fact: I love exploring new tech stacks, and I can debug code faster than I can decide what to watch on Netflix! 😆  
 
